@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Tenshi-Sa
+## Bem-vindo(a) ao perfil da Tenshi-Sabrina
 
  <div>
    <a href="https://github.com/Tenshi-Sabrina">
